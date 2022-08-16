@@ -3,4 +3,4 @@ fuck apple dont buy it
 (fr dont buy it , this shit is nasty )
 
 
-still works fine 8/16/2022
+still is working fine 8/16/2022
