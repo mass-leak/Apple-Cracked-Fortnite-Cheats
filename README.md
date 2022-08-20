@@ -1,6 +1,9 @@
-easy as fuck, run, put anything as key, then launch fortnite.
-fuck apple dont buy it
-(fr dont buy it , this shit is nasty )
+How to use:
 
 
-still is working fine 8/16/2022
+Launch this, wait for it to close, then open Fortnite.
+Make sure you're in windowed full screen.
+Do not use car fly, it's detected.
+
+Enjoy. Working 20/08/2022
+Undetected on EAC/BE
