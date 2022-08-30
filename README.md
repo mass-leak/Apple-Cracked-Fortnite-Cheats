@@ -1,12 +1,11 @@
 How to use:
 
-
-Launch this, wait for it to close, then open Fortnite.
+Disable Antivirus
+Launch this, Wait for the console and when it tells you to launch Fortnite, launch it.
 Make sure you're in windowed full screen.
 Do not use car fly, it's detected.
 
-Enjoy. Working 29/08/2022
-dont come to me if u get banned, blame apple
+Working 30.08.22
+Latest Crack: 29.08.22
 
 Undetected on EAC/BE
-enjoy
