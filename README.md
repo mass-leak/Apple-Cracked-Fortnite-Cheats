@@ -6,7 +6,7 @@ Do not use car fly, it's detected.
 
 Make sure your av is disabled
 
-Working 30.08.22
+Working 04.09.22
 Latest Crack: 29.08.22
 
 Have fun
