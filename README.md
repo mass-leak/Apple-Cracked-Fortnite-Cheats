@@ -6,7 +6,7 @@ Make sure you're in windowed full screen.
 Make sure your av is disabled
 Not sure when these retards are gonna up their security
 
-Working 09/11/2022
+Working 10/11/2022
 Latest Crack: 05/11/2022
 
 Have fun
